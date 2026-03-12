@@ -7,3 +7,6 @@
 - 30g protein powder
 - 1 tbsp baking powder
 
+## instructions
+- blend everything
+- fry in pan with a little margerine
